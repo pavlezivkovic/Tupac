@@ -1,2 +1,2 @@
 # 2Pac
-2Pac not official site
+2Pac fanmade site
